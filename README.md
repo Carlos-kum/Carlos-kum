@@ -1,0 +1,4 @@
+- 👋 oi, eu sou @Carlos-kum
+- 👀 atualmente estou interessado em se torna um programador full stack
+- 🌱 Atualmente estou aperendendo html, js, css e muitos outros.
+- 📫 Meus contatos são whatssap 85 992623208, instagram @c_arlosl_uis
